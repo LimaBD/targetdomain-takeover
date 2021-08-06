@@ -1,1 +1,1 @@
-<script>angry_gingy<script>
+domain takeover angry_gingy
