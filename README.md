@@ -1,1 +1,1 @@
-domain takeover angry_gingy
+by angry_gingy
