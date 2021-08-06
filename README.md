@@ -1,1 +1,1 @@
-# targetdomain-takeover
+<script>angry_gingy<script>
